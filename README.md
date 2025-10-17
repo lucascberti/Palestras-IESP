@@ -9,5 +9,9 @@ Ciclo de Palestras 2025.2 - IESP/UERJ
 --> Fim do ministério do trabalho no gov. Bolsonaro e tentativa da "carteira de trabalho verde e amarela".
 
 
+# Palestra Octavio Amorim Neto - Presidentialism and Civil-Military Relations (17/10)
+
+--> 
+
 
 
