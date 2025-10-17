@@ -16,6 +16,7 @@ Ciclo de Palestras 2025.2 - IESP/UERJ
 --> Process-tracing na metodologia;
 --> Análise temporal do gasto militar entre 1946-2024;
 --> 36% de ministros militares em Bolsonaro;
+--> 
 
 
 
